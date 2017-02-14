@@ -4,7 +4,7 @@ These are a few of my favorite things:
 
 - Blots of blue
 - Raindrops on roses
-- Whiskers on mice
+- Whiskers on bears
 - Bright copper kettles
 - Warm woolen mittens
 - Me
